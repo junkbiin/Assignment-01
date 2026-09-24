@@ -1,4 +1,4 @@
-![]()
+![girl with camera](personal-goals.jpg)
 ## Personal Goals
 - Make reguler donations to a non-profit organization of choice.
 - Be consistent in the gym
