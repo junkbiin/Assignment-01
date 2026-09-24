@@ -1,4 +1,4 @@
-![financial-stability-heart](financial.jpg)
+![financial-stability-heart](finacial.jpg)
 ## Financial Goals
 - Save enough for retirment to live comfortably
 - Pay off any student loans
