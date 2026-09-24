@@ -1,5 +1,5 @@
+![grad hats in the air](graduation.jpg)
 ## Education and Career Goals
-![victorian-home](victorian-home.jpg)
 - Get a Co-Op placement 
 - Graduate Wilfrid Laurier with Honours
 - Complete a Masters degree
